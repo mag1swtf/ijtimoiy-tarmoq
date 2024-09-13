@@ -1,0 +1,2 @@
+# ijtimoiy-tarmoq
+hello
